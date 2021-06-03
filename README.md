@@ -1,2 +1,2 @@
-# LOL
-SO FUN!!! OMG!!!!!!!!!1
+# FUN!!!!!!!!
+but please don't try this sh*t
