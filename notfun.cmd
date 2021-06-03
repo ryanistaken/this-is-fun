@@ -1,5 +1,5 @@
 @echo off
-color 4a
+color 4f
 
 :1
 echo THIS IS FUN!
