@@ -1,2 +1,2 @@
-# this-is-fun
-FUUUUNNNNNNN!!!!!!!!!!!!!!!!!!!
+# LOL
+SO FUN!!! OMG!!!!!!!!!1
